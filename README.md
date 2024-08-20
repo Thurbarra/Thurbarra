@@ -1,6 +1,6 @@
 bom dia
 
-**Thurbarr**
+**sou o arthur barragan**
 
 faço curso de RH,markenting e inglés
 
