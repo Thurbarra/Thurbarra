@@ -2,7 +2,7 @@ bom dia
 
 **sou o arthur barragan**
 
-faço curso de RH,markenting e inglés
-
+faço curso de markenting e inglés
+formado em RH
 estudo no Adib miguel Haddad
 
